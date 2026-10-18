@@ -239,4 +239,4 @@ EA Sports FC 26 is available as a **full free version** with all features and up
 Download EA Sports FC 26 today and immerse yourself in the ultimate soccer experience!
 
 ---
-**Last updated:** 2026-10-17 22:05:54 UTC
+**Last updated:** 2026-10-18 00:46:25 UTC
